@@ -1,1 +1,1 @@
-# white and dark https://acexion.github.io/fgdgsd/project/
+# light and dark https://acexion.github.io/fgdgsd/project/
